@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mirka1405
+- 👀 I’m interested in ... coding
+- 🌱 I’m currently learning ... python and js
+- 💞️ I’m looking to collaborate on ... nothing
+- 📫 How to reach me ... lol no
